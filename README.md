@@ -1,1 +1,1 @@
-# Techmology-and-Information-System
+# Technology-and-Information-System
